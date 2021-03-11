@@ -1,2 +1,0 @@
-# mindSoft
-mindSoft Jeweller
